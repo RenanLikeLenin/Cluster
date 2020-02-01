@@ -2,7 +2,7 @@
 :shit:
 
 
-bip
+will it stop being stupid?
 
 
 42069
